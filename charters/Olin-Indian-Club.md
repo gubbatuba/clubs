@@ -8,7 +8,7 @@ To spread Indian culture and traditions with everyone. We will also embrace some
 Everyone is welcome. No required work. Help if you want for certain events.
 
 ##Officers and Roles:
-President (2016-17 is Shruti Reyi): Oversees events and activities planning and execution.
+President (2016-17 is Shruti Iyer): Oversees events and activities planning and execution.
 
 Planning Committee: Helps President plan activities and events, as well as order (and eat!) food and any other supplies needed.
 
